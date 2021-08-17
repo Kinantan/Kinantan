@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Kinantan
-- 👀 I’m interested in cyber security
+- Halo 👋. I'am Kinantan
+- 
 
