@@ -1,1 +1,1 @@
-- Halo 👋. I'am Kinantan
+- Hey Dude! Welcome to my page
