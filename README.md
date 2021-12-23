@@ -1,1 +1,2 @@
 - Hey Dude! Welcome to my page
+- Halaman ini saya dedikasikan untuk mempermudah hidup anda
